@@ -1,1 +1,1 @@
-# Studia
+# Techniki Optymalizacyjne
